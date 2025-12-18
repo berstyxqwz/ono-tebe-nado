@@ -1,1 +1,1 @@
-https://github.com/berstyxqwz/ono-tebe-nado#
+https://github.com/berstyxqwz/ono-tebe-nado-ad
